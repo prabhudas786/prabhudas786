@@ -12,6 +12,6 @@
 
 📧 Email: prabhudass786@gmail.com
 
-💼 LinkedIn: https://www.linkedin.com/in/prabhu-das-48b837139
+💼 LinkedIn: https://www.linkedin.com/in/prabhu-dass-b-48b837139/
 
 
